@@ -7,4 +7,4 @@
 
 ## Contact Me
 
-You can reach me at sanzhar.sartaev2007@gmail.com[sanzhar.sartaev2007@gmail.com](mailto:sanzhar.sartaev2007@gmail.com), [telegram](https://t.me/sanzhsar).
+You can reach me at sanzhar.sartaev2007@gmail.com, [telegram](https://t.me/sanzhsar).
